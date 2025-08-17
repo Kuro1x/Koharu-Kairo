@@ -4,7 +4,7 @@ kai1ro>
 •always playing on pt【pony town٭*✩】     
 •C+H freely! I don't bite>
 •I'm often afk or busy,,       
-•My fandoms are CRK, ALNST, TBHK, MW!   
+•My fandoms are CR, ALNST, TBHK, MW, !   
 •I'm interested in cats and books!      
 •always listening to music!      
 ••but remember on pony town that do  NOT copy or INSPO my ponies!        
